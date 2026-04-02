@@ -111,8 +111,7 @@ Ready to automate your business? **OrderMesh** is available for custom licensing
   <img src="https://res.cloudinary.com/ddnvx3zrg/image/upload/v1775148147/qrcode_328119564_0f419835cf9b14e516a9c17d12ba958b_zkzqmo.png" width="10%" />
 </p>
 
-- **Request a Live Demo:** [Contact via WhatsApp](https://wa.me/your-number-here) 
-- **Consultation:** [Schedule a Call](mailto:your-email@example.com)
+- **Request a Live Demo:** [Contact via WhatsApp](https://wa.me/+923062767542) 
 
 ---
 
